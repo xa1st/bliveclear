@@ -8,7 +8,7 @@
 
 #### 有问题请至此留言
 
-传送门：https://del.pub/code/bliveclear
+传送门：https://del.pub/code/bliveclear.html
 
 #### 说明
 
